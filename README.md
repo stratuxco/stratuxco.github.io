@@ -1,1 +1,0 @@
-# stratuxco.github.io
